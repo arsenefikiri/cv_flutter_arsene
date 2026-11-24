@@ -4,7 +4,7 @@ IRAGI FIKIRI ARSENE <br/>
 
 video demo TP2<br/>
 
-https://github.com/user-attachments/assets/bf9d9ecc-4280-40c4-8464-2846a4495d4f <br/>
+https://github.com/user-attachments/assets/bf9d9ecc-4280-40c4-8464-2846a4495d4f 
 
 
 
